@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @vincentgoitortua
 - 👀 I’m interested in coding, video games like COH 2 and Fortnite.
-- 💞️ I’m looking to collaborate on anything to get started
+- 💞️ I’m looking forward to say Hello!
 - 📫 How to reach me IG: VG531 and Linkedin.com/in/vincent-goitortua/
 
 <!---
